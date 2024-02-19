@@ -23,7 +23,7 @@ Ich habe die Daten nach verschiedenen Kriterien analysiert. Interessant waren vo
 Die Daten belegen also die Erfolglosigkeit und die Isolation der SVP im Gemeinderat. Sie deuten aber auch darauf hin, dass die SVP eine neue Strategie hat: mit einer hohen Anzahl von Postulaten und Motionen Druck im Parlament zu machen. Dies bestätigte sich dann auch im Gespräch mit dem Fraktionschef der SVP.
 
 ## 4 Artikel
-Link folgt
+https://www.nzz.ch/zuerich/niedergang-der-svp-in-zuerich-neue-strategie-soll-krise-beenden-ld.1807233
 
 ## 5 Aufwandlogbuch
 
